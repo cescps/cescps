@@ -1,4 +1,3 @@
 # Welcome 🙏
 
-* I'm currently learning how to make websites 🗣️
-* I'm experimenting new things 👀
+* I'm currently learning new things 👀
