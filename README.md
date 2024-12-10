@@ -1,3 +1,3 @@
-# Welcome 🙏
+# Benvingut 🙏
 
-* I'm currently learning new things 👀
+* Aprenent coses 👀
