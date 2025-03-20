@@ -1,3 +1,3 @@
 # Benvingut 🙏
 
-* Aprenent coses 👀
+* fent coses 👀
